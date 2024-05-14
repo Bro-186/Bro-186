@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Bro-186
+- 👀 I’m interested in Gaming and
+- 🌱I’m currently learning how to code in Java
+- 💞️ I’m looking to collaborate on minecrraft mods for java and bedrock
+- 📫 How to reach me: Locate my IP
+- 😄 Pronouns: The God
+- ⚡ Fun fact: I never had a Girlfriend
